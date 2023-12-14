@@ -4,6 +4,7 @@
 <img src="https://kamisetas.com/image/bordados/Cobi-Barcelona-92-parche.gif" alt="drawing" width="200"/>
 </p>
 
+
 Cobify is a company dedicated to people transport just like Uber, Lyft or even Cabify (who clearly stole our name).
 
 Cobify was founded in 1992 coinciding with the Olympic Games hosted in Barcelona. Our company has always been known by:
